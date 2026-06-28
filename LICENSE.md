@@ -1,4 +1,4 @@
-# 
+# Nativo WinRAR preajustes para Mac OS | Profesional WinRAR preajustes para PC Windows. Con actualizador de controladores y lanzamiento rápido — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
